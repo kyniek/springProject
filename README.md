@@ -1,6 +1,10 @@
 # springProject
 
 
+## Tips&Tricks
+better reactive stream debug - place in method with Mono/Flux : Hooks.onOperatorDebug();
+
+
 
 Classic approach to WS : one thread per request - default value is 200 , can be increased but minimal consumption for thread is 1MB 
 
