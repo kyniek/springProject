@@ -1,5 +1,57 @@
+//==========
+Spring data JPA - list of values in single column
+
+1) najpierw trzeba stworzyć klasę - konwerter, która będzie zamieniała listę enumów - na pojedyńczy string, oraz w odwrotną stronę : 
+=====
+
+@Converter
+public class StringListConverter implements AttributeConverter<List<SimpleEnum>, String> {
+    private static final String SPLIT_CHAR = ";";
+
+    private static Map<Integer, SimpleEnum> simpleEnumMapping = new HashMap<>();
+
+    static {
+        for (SimpleEnum reason : SimpleEnum.values()) {
+            simpleEnumMapping.put(
+                reason.ordinal(),
+                reason
+            );
+        }
+    }
+
+    @Override
+    public String convertToDatabaseColumn(List<SimpleEnum> stringList) {
+        return StringUtils.join(stringList.stream().filter(reason -> reason!=null).map(SimpleEnum::ordinal).toList(),SPLIT_CHAR);
+    }
+
+    @Override
+    public List<SimpleEnum> convertToEntityAttribute(String string) {
+        return isBlank(string) ? emptyList() : Stream.of(string.split(SPLIT_CHAR)).map(key -> simpleEnumMapping.get(Integer.valueOf(key))).toList();
+    }
+}
+
+2) Następnie należy użyć konwertera w enityt :
+=====
+
+@Entity
+@Table(name = "simple_result")
+@NoArgsConstructor
+@AllArgsConstructor
+@Builder(toBuilder = true)
+@Getter
+@Setter
+public class SimpleResultEntity {
+
+    @Id
+    @GeneratedValue
+    private UUID id;
+
+    private double totalSum;
+
+    @Convert(converter = StringListConverter.class)
+    private List<OFAFilterRejectionReason> reasons;
+}
 
 
-
-
+//==========
 Idea auto import count : Editor > Code Style > Java > Imports tab set Class count to use import with '*'
