@@ -55,3 +55,6 @@ public class SimpleResultEntity {
 
 //==========
 Idea auto import count : Editor > Code Style > Java > Imports tab set Class count to use import with '*'
+
+//==========
+RegExp - online : https://regex101.com/
