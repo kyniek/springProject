@@ -53,6 +53,38 @@ public class SimpleResultEntity {
 }
 
 
+
+
+
+//==========
+Mockito - mock void method with side effect 
+
+import static org.junit.jupiter.api.Assertions.assertEquals;
+import static org.junit.jupiter.api.Assertions.assertThrows;
+import static org.mockito.Mockito.doAnswer;
+
+    @Test
+    void givenDoAnswer_whenAddCalled_thenAnswered() {
+        MyList myList = mock(MyList.class);
+
+        doAnswer(invocation -> {
+            Object arg0 = invocation.getArgument(0);
+            Object arg1 = invocation.getArgument(1);
+            //=====================================
+            //Do some side effect
+            //=====================================
+            assertEquals(3, arg0);
+            assertEquals("answer me", arg1);
+            return null;
+        }).when(myList)
+            .add(any(Integer.class), any(String.class));
+
+        myList.add(3, "answer me");
+    }
+
+
+
+
 //==========
 Idea auto import count : Editor > Code Style > Java > Imports tab set Class count to use import with '*'
 
