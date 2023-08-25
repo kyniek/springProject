@@ -87,7 +87,7 @@ Ukraina :
   - Na zakarpaciu zatrzymano ukraińca sprzedającego niemowlaki na organy : https://wolnemedia.net/ukrainski-handlarz-dziecmi-sprzedawal-niemowlaki-na-organy/
   - analiza, raporty dowodzące handlu dziećmi i organami na Ukrainie : https://wolnemedia.net/ukraina-swiatowe-centrum-handlu-organami-i-dzieciecej-prostytucji/
 - Załensky :
-    - [kupił kolejną willę - w Egipcie :](https://wolnemedia.net/zelenski-kupil-za-posrednictwem-tesciowej-luksusowa-wille-w-egipcie/)
+    - kupił kolejną willę - w Egipcie : https://wolnemedia.net/zelenski-kupil-za-posrednictwem-tesciowej-luksusowa-wille-w-egipcie/
 - pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974 
 - front : https://youtu.be/yO3V1qE2E6I?t=3853 
 - sytuacje :
