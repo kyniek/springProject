@@ -49,6 +49,7 @@ Historia :
 - Jak polski rząd uciekł, agresja III Rzeszy, Słowacji i Ukraińców na rozkaz Canarissa, ZSRR : https://youtu.be/ETZ9eoEfB8c?t=544 
 - operacja miłosierny anioł, masakra NATO w Jugosławi : https://wolnemedia.net/milosierny-aniol-amerykanskie-ludobojstwo-pod-djakovica/
 - CIA za pomocą LSD spowodowało masowe szaleństwo w Pont-Saint-Esprit : https://wolnemedia.net/tajemnica-pont-saint-esprit/
+- MK-ultra nowe dokumenty, etniczna broń biologiczna : https://wolnemedia.net/etniczna-bron-biologiczna-kontrola-umyslu-i-niepokojace-eksperymenty/
 - Powstanie warszawskie - jak to naprawdę było : https://youtu.be/TBAefq5Hu-k?t=365 
 - Powstanie warszawskie - fałszerstwo PAP zeznania świadka : https://youtu.be/TBAefq5Hu-k?t=2350
 
