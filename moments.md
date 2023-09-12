@@ -52,6 +52,7 @@ Historia :
 - MK-ultra nowe dokumenty, etniczna broń biologiczna : https://wolnemedia.net/etniczna-bron-biologiczna-kontrola-umyslu-i-niepokojace-eksperymenty/
 - Powstanie warszawskie - jak to naprawdę było : https://youtu.be/TBAefq5Hu-k?t=365 
 - Powstanie warszawskie - fałszerstwo PAP zeznania świadka : https://youtu.be/TBAefq5Hu-k?t=2350
+- Japonia, Shiro Ischi , dowódca bestialskiej jednoski 702, zamordowali 20 000 000 Chińczyków : https://youtu.be/txI26x7w5Mg?t=3349
 
 
 Militaryzacja :
