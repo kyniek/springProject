@@ -39,7 +39,8 @@ Polska afery :
   - laptop dla 4 klasistów, zapłacili po 3300, lepsze na wolnym rynku można kupić za 2000 : https://youtu.be/oDO5whEzShU?t=4783
   - Kretyńska lokalizacja portu w Świnoujściu, specjalnie by się nie udało : https://youtu.be/oDO5whEzShU?t=5107
   - Rafał Piech, 9 Biedronek, 3 Lidle, Aldi, Carrefour, 2 Kauflandy, Auchan, 3 Odido, 14 Żabek! : https://youtu.be/OebNm2aw2_4?t=4601
-  - PiS sprowadza do Polski emigrantów, legalizując ich pobyt : https://youtu.be/9zGiN7YXSHI?t=144 
+  - PiS sprowadza do Polski emigrantów, legalizując ich pobyt : https://youtu.be/9zGiN7YXSHI?t=144
+  - Ministerstwo sprawiedliwości ujawnia PESELe, adresy : https://youtu.be/By7dtZU6_6o?t=767
 
 Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
