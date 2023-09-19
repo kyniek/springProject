@@ -41,6 +41,7 @@ Polska afery :
   - Rafał Piech, 9 Biedronek, 3 Lidle, Aldi, Carrefour, 2 Kauflandy, Auchan, 3 Odido, 14 Żabek! : https://youtu.be/OebNm2aw2_4?t=4601
   - PiS sprowadza do Polski emigrantów, legalizując ich pobyt : https://youtu.be/9zGiN7YXSHI?t=144
   - Ministerstwo sprawiedliwości ujawnia PESELe, adresy : https://youtu.be/By7dtZU6_6o?t=767
+  - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
 
 Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
