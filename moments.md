@@ -99,7 +99,8 @@ Ukraina :
 - Zeznania cywila ukraińskiego jak to ich armia zamknęła w zaminowanej piwnicy : https://youtu.be/ETZ9eoEfB8c?t=2859
 - Legion cudoziemski, polski, w okopach mądrość wraca : https://youtu.be/HfcX5DAnNQU?t=1241
 - dron ukraiński sterowany anteną starlink od Muska : https://youtu.be/FAOXbpnBqNs?t=2933 
-- Uciekanie przed wojenkomatem, łapanki : 
+- Uciekanie przed wojenkomatem, łapanki :
+  - https://youtu.be/7y0QUgQfm9U?t=1478 
   - https://youtu.be/qUUN1yLHvHY?t=1521
   - https://youtu.be/asc-juCiF-g?t=3868
   - https://youtu.be/TBAefq5Hu-k?t=1743
