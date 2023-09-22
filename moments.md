@@ -25,6 +25,7 @@ Polska gospodarka :
   - polski instytut w Kijowie robi propagandę, flaga polski przypinana : https://youtu.be/4Rf4o89Ni9o?t=840 
   - polska emerytura dla Ukraińca za przepracowanie choćby 1 dnia w Polsce : https://youtu.be/ETZ9eoEfB8c?t=4124 
   - powstaje nowy port na wyspie w Gdyni, budują tylko zachodnie firmy : https://youtu.be/9zGiN7YXSHI?t=1297
+  - Brakuje nauczycieli : https://wolnemedia.net/edukacja-na-bardzo-ostrym-zakrecie/
 
 Opresja :
   - minimum 1000zł kary za zbieranie grzybów i sprzedarz : https://youtu.be/FAOXbpnBqNs?t=826 
