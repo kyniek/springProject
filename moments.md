@@ -79,6 +79,7 @@ Nazizm :
   - General Plan Ost, wymordowanie i przesiedlenie 85% Polaków : https://www.prokapitalizm.pl/czyszczenie-przedpola-plan-doktora-hansa-ehlicha-wciaz-aktualny/
   -  Izrael :
     - Zbombardowali 3 szpitale : https://wolnemedia.net/izraelskie-ataki-na-palestynskie-cele-cywilne/
+  - Kanada, zaproszono do parlamentu 98 letniego SS-mana, owacje na stojąco : https://youtu.be/QMtOHSGHMI4?t=3283 
   - Łotwa, przemarsz weteranów SS : https://youtu.be/yO3V1qE2E6I?t=3408
   - CIA kontrolowała OUN UPA : https://wolnemedia.net/mykola-lebed-i-operacja-aerodynamic/
   - kto finansował nazizm na UA : https://www.mintpressnews.com/us-uk-government-propaganda-specialists-collaborated-nazis-ukraine/285033/
