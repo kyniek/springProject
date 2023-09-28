@@ -30,6 +30,7 @@ Opresja :
   - pobłażliwość dla ukraińskich przestępców, surowe kary dla Polaków, syn posłanki Arent katował dziewczynę i nagrywał : https://youtu.be/3JuLmAJa460?t=4824
   
 Polska afery :
+  - majątek Morawieckiego, conajmniej 100 mln zł : https://youtu.be/89p6ULEBb2U?t=1081
   - mąż pani Witek z PIS 2 lata na OIOM, za 30 000zł miesiąc : https://youtu.be/ETZ9eoEfB8c?t=4459
   - fala zgonów kadry (17 + 34 + 39 + 20), uniwersytet Mickiewidza : https://youtu.be/HfcX5DAnNQU?t=59 
   - BGK sprzedawany na japońskiej giełdzie za 3.5 mld zł : https://youtu.be/pUo2riBy1Ew?t=176
