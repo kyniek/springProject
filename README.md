@@ -1,5 +1,8 @@
 # springProject
 
+## InteliJ IDEA
+- highlighting setup : Edito -> Color Scheme -> General
+
 
 ## Tips&Tricks
 better reactive stream debug - place in method with Mono/Flux : Hooks.onOperatorDebug();
