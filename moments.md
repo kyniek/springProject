@@ -47,7 +47,8 @@ Polska afery :
   - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
 
 Polska wydarzenia :
-  - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574 
+  - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574
+  - Duda powitany w USA przez rodaków na paradzie Puławskiego : https://youtu.be/rO3SRYORMO4?t=1796 
 
 Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
