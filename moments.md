@@ -48,7 +48,8 @@ Polska afery :
 
 Polska wydarzenia :
   - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574
-  - Duda powitany w USA przez rodaków na paradzie Puławskiego : https://youtu.be/rO3SRYORMO4?t=1796 
+  - Duda powitany w USA przez rodaków na paradzie Puławskiego : https://youtu.be/rO3SRYORMO4?t=1796
+  - Mentzen - na wszystko może nie starczyć ale na wojsko kasa musi być : https://youtu.be/majWZ2ZoVs4?t=744 
 
 Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
