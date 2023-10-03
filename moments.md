@@ -89,7 +89,8 @@ Nazizm :
   - Łotwa, przemarsz weteranów SS : https://youtu.be/yO3V1qE2E6I?t=3408
   - CIA kontrolowała OUN UPA : https://wolnemedia.net/mykola-lebed-i-operacja-aerodynamic/
   - kto finansował nazizm na UA : https://www.mintpressnews.com/us-uk-government-propaganda-specialists-collaborated-nazis-ukraine/285033/
-  - militarystyczne wychowywanie dzieci, jak janczarów : https://youtu.be/rO3SRYORMO4?t=3089 
+  - militarystyczne wychowywanie dzieci, jak janczarów : https://youtu.be/rO3SRYORMO4?t=3089
+  - Aleja Aniołków w Doniecku : https://youtu.be/majWZ2ZoVs4?t=1590
 
 
 Białoruś :
