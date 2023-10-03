@@ -46,6 +46,9 @@ Polska afery :
   - Ministerstwo sprawiedliwości ujawnia PESELe, adresy : https://youtu.be/By7dtZU6_6o?t=767
   - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
 
+Polska wydarzenia :
+  - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574 
+
 Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
 
