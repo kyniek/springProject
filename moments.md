@@ -126,6 +126,8 @@ Ukraina :
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329 
 
 
+USA : 
+  - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
 
 
 
