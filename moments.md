@@ -90,6 +90,7 @@ Nazizm :
   - CIA kontrolowała OUN UPA : https://wolnemedia.net/mykola-lebed-i-operacja-aerodynamic/
   - kto finansował nazizm na UA : https://www.mintpressnews.com/us-uk-government-propaganda-specialists-collaborated-nazis-ukraine/285033/
   - militarystyczne wychowywanie dzieci, jak janczarów : https://youtu.be/rO3SRYORMO4?t=3089
+  - Ukraina : więzienie dla ludzi bo zostali i pracowali gdy przyszli Rosjanie : https://www.politico.eu/article/in-ukraine-collaboration-cases-arent-always-clear-cut/
   - Aleja Aniołków w Doniecku : https://youtu.be/majWZ2ZoVs4?t=1590
 
 
