@@ -73,6 +73,7 @@ Covid :
 - Większość zmarła na respiratorowe zapalenie płuc, a nie COVID-19 : https://wolnemedia.net/wiekszosc-zmarla-na-respiratorowe-zapalenie-pluc-a-nie-covid-19/
 - Procesy w Niemczech o zniszczone zdrowie po preparatach genetycznych : https://wolnemedia.net/pierwsze-procesy-sadowe-z-powodu-skutkow-szczepien-na-covid-19/ 
 - liczba nagłych zgonów w Australii wzrosła o 5162% : https://wolnemedia.net/liczba-naglych-smierci-w-australii-wzrosla-o-5162/
+- Badanie naukowe, 3 do 5 krotnie więcej przypadków u zaszczepionych : https://wolnemedia.net/krwawienie-z-pochwy-u-niemiesiaczkujacych-kobiet-po-preparatach-mrna/
   Nagłe zgony :
   - Nagły zgon doświadczonego biegacza : https://wolnemedia.net/nagly-zgon-doswiadczonego-biegacza/
   - Nagły zgon naukowca : https://wolnemedia.net/nagla-i-podejrzana-smierc-niewygodnego-naukowca/
