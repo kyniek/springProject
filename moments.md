@@ -5,6 +5,7 @@ Nauka :
 - Szczelinowanie gazu wywołuje trzęsienia ziemi, dowody : https://wolnemedia.net/szczelinowanie-hydrauliczne-wywoluje-trzesienia-ziemi-2/
 
 
+
 Świat wydarzenia :
 - Katastrofa badyspapu, zginął pakistański miliarder od amoniaku i rurociągów : https://youtu.be/sGbmHNRkQDk?t=1859
 - Binden kocha dzieci : https://youtu.be/asc-juCiF-g?t=4050
@@ -16,6 +17,7 @@ Tony Halik - żołnierz wermachtu
 https://youtu.be/yO3V1qE2E6I?t=3804
 
 
+
 Polska gospodarka :
   - Polonezy exportowane do Chin : https://youtu.be/yO3V1qE2E6I?t=2341
   - bieda, piekarnia w PRzemyślu sprzedaje chleb na kromki : https://youtu.be/OtyiOCZLOBo?t=2202 
@@ -24,10 +26,12 @@ Polska gospodarka :
   - powstaje nowy port na wyspie w Gdyni, budują tylko zachodnie firmy : https://youtu.be/9zGiN7YXSHI?t=1297
   - Brakuje nauczycieli : https://wolnemedia.net/edukacja-na-bardzo-ostrym-zakrecie/
 
+
 Opresja :
   - minimum 1000zł kary za zbieranie grzybów i sprzedarz : https://youtu.be/FAOXbpnBqNs?t=826 
   - Anarcho-tyrania, inżynieria społeczna totalnej kontroli : https://wolnemedia.net/do-systemu-panstw-europy-ladowana-jest-anarcho-tyrania/
   - pobłażliwość dla ukraińskich przestępców, surowe kary dla Polaków, syn posłanki Arent katował dziewczynę i nagrywał : https://youtu.be/3JuLmAJa460?t=4824
+
   
 Polska afery :
   - majątek Morawieckiego, conajmniej 100 mln zł : https://youtu.be/89p6ULEBb2U?t=1081
@@ -46,13 +50,16 @@ Polska afery :
   - Ministerstwo sprawiedliwości ujawnia PESELe, adresy : https://youtu.be/By7dtZU6_6o?t=767
   - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
 
+
 Polska wydarzenia :
   - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574
   - Duda powitany w USA przez rodaków na paradzie Puławskiego : https://youtu.be/rO3SRYORMO4?t=1796
   - Mentzen - na wszystko może nie starczyć ale na wojsko kasa musi być : https://youtu.be/majWZ2ZoVs4?t=744 
 
+
 Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
+
 
 
 Historia :
@@ -63,10 +70,13 @@ Historia :
 - Powstanie warszawskie - jak to naprawdę było : https://youtu.be/TBAefq5Hu-k?t=365 
 - Powstanie warszawskie - fałszerstwo PAP zeznania świadka : https://youtu.be/TBAefq5Hu-k?t=2350
 - Japonia, Shiro Ischi , dowódca bestialskiej jednoski 702, zamordowali 20 000 000 Chińczyków : https://youtu.be/txI26x7w5Mg?t=3349
+- Przygotowania do I Wojny Światowej Wielkiej Brytanii, planowane : https://wolnemedia.net/sekretne-poczatki-pierwszej-wojny-swiatowej/
+
 
 
 Militaryzacja :
 - Kwalifikacja wojskowa dla wszystkich, ćwiczenia wojskowe leśników : https://youtu.be/JkjBYFJ6Juo?t=435 
+
 
 
 Covid :
@@ -97,8 +107,10 @@ Nazizm :
   - Aleja Aniołków w Doniecku : https://youtu.be/majWZ2ZoVs4?t=1590
 
 
+
 Białoruś :
   - Na Białorusi uczczono pamięć ofiar rzezi wołyńskiej : https://wolnemedia.net/na-bialorusi-uczczono-pamiec-ofiar-rzezi-wolynskiej/ 
+
 
 
 Ukraina :
@@ -128,6 +140,7 @@ Ukraina :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - https://youtu.be/qUUN1yLHvHY?t=1720
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329 
+
 
 
 USA : 
