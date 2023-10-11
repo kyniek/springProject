@@ -145,6 +145,7 @@ Ukraina :
 
 USA : 
   - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
+  - Kongresmenka amerykańska - należy prześledzić numery seryjne amerykańskiej broni używanej przez Hamas, czy to pomoc dla Ukrainy : https://youtu.be/vYgII-eSBaw?t=1442
 
 
 
