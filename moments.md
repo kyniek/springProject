@@ -89,6 +89,7 @@ Covid :
   - Nagły zgon naukowca : https://wolnemedia.net/nagla-i-podejrzana-smierc-niewygodnego-naukowca/
   - Preparaty genetyczne na covid zwiększają ryzyko chorób serca 130 razy : https://wolnemedia.net/preparaty-na-covid-19-zwiekszaja-ryzyko-chorob-serca-o-13200/ 
   - Nagłe zgony polityków państw afrykańskich, po wprowadzeniu reżimu covidowego ustay : https://wolnemedia.net/dziwne-zgony-z-powodu-covid-19-w-afryce/
+  - https://wolnemedia.net/nagla-smierc-8-latka-ktory-promowal-szczepienia-na-covid-19/ Nagły zgon 8 latka
   - dr Rish z Yale University wiąże nagły wzrost zachorowań na nowotwory z preparatem na covid : https://wolnemedia.net/po-szczepieniach-na-covid-19-wzrosla-liczba-chorych-na-raka/#comment-296611 
 
 
