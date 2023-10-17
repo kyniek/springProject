@@ -154,3 +154,25 @@ USA :
 
 Inne :
   - 3d printed car : https://www.youtube.com/watch?v=-pxNIrBaDrA
+
+
+Kalendarz :
+1985 – Jaruzelski–Rockefeller, przekazanie Polski z jednych rąk żydowskich do drugich, tj. spod opieki sowieckiej pod opiekę amerykańską
+1993 – konsekwentne zakończenie wycofywania wojsk sowieckich z Polski, chwila oddechu przed utratą gospodarki przez Polskę
+1999 – NATO
+2004 – UE
+2005 – Chabad Lubawicz, Polin
+2007 – B’nai B’rith
+2009 – Deklaracja Terezińska, umowa z USA o statusie wojsk amerykańskich w Polsce
+2010 – katastrofa smoleńska
+2011 – Tusk–Netanyahu
+2012 – rozpoczęcie lokowania wojsk amerykańskich w Polsce
+2015 – Agenda 2030
+2017 – ustawa S 447
+2018 – deklaracja o partnerstwie strategicznym z USA; żart z ustawą o IPN
+2019 – deklaracja o współpracy obronnej w zakresie obecności wojsk amerykańskich w Polsce; pierwszy Światowy Szczyt Szczepień; deklaracja o pogłębionej współpracy obronnej jw.
+2020 – Szumowski – stan zagrożenia epidemicznego, stan epidemii w Polsce; umowa o wzmocnionej współpracy obronnej jw.
+2021 – zasieki wzdłuż granicy z Białorusią; Duda – stan wyjątkowy na części obszaru Polski
+2022 – Duda – ulokowanie w Polsce do 7550 żołnierzy obcych armii, w tym do 6500 amerykańskich i personelu cywilnego wraz z etatowym uzbrojeniem, wyposażeniem i środkami bojowymi oraz z prawem użycia broni wobec Polaków (te liczby dawno zdezaktualizowały się)
+2022 – początek największej w historii akcji przesiedleńczej Ukraińców do Polski
+2020–2022 – ponad 200 tys. nadmiarowych zgonów; pozostali przy życiu Polacy nie uznają tego za temat warty uwagi
