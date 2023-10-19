@@ -149,6 +149,8 @@ USA :
   - Kongresmenka amerykańska - należy prześledzić numery seryjne amerykańskiej broni używanej przez Hamas, czy to pomoc dla Ukrainy : https://youtu.be/vYgII-eSBaw?t=1442
 
 
+Izrael : 
+- Netanyahu nakazał wojsku wycofanie i nie reagowanie przez 7 godzin - Jewish Pro-Life Foundation : https://wolnemedia.net/netanjahu-nakazal-wojsku-wycofac-sie-podczas-ataku-hamasu/
 
 
 
