@@ -138,6 +138,7 @@ Ukraina :
   - https://youtu.be/qUUN1yLHvHY?t=1521
   - https://youtu.be/asc-juCiF-g?t=3868
   - https://youtu.be/TBAefq5Hu-k?t=1743
+  - https://youtu.be/N0r0QB5Ysv0?t=3631
   - łapanka z psami : https://youtu.be/gSHxo2-k3Gc?t=2547
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
