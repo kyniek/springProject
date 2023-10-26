@@ -129,7 +129,8 @@ Ukraina :
 - pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974 
 - front : https://youtu.be/yO3V1qE2E6I?t=3853 
 - sytuacje :
-  - pani z mercedesa w Kijowie zatrzymana grozi policjantom że jej mąż ich do Bahmuta wyśle : https://youtu.be/OtyiOCZLOBo?t=1861 
+  - pani z mercedesa w Kijowie zatrzymana grozi policjantom że jej mąż ich do Bahmuta wyśle : https://youtu.be/OtyiOCZLOBo?t=1861
+  - Wille urzędników, bogacą się na wojnie : https://youtu.be/N0r0QB5Ysv0?t=3919
 - Zeznania cywila ukraińskiego jak to ich armia zamknęła w zaminowanej piwnicy : https://youtu.be/ETZ9eoEfB8c?t=2859
 - Legion cudoziemski, polski, w okopach mądrość wraca : https://youtu.be/HfcX5DAnNQU?t=1241
 - dron ukraiński sterowany anteną starlink od Muska : https://youtu.be/FAOXbpnBqNs?t=2933 
