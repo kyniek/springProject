@@ -132,6 +132,7 @@ Ukraina :
 - sytuacje :
   - pani z mercedesa w Kijowie zatrzymana grozi policjantom że jej mąż ich do Bahmuta wyśle : https://youtu.be/OtyiOCZLOBo?t=1861
   - Wille urzędników, bogacą się na wojnie : https://youtu.be/N0r0QB5Ysv0?t=3919
+  - Znalezienie lokalizatora GPS w jednej z limuzyn Dudy po wizycie na UA : https://youtu.be/N0r0QB5Ysv0?t=2802
 - Zeznania cywila ukraińskiego jak to ich armia zamknęła w zaminowanej piwnicy : https://youtu.be/ETZ9eoEfB8c?t=2859
 - Legion cudoziemski, polski, w okopach mądrość wraca : https://youtu.be/HfcX5DAnNQU?t=1241
 - dron ukraiński sterowany anteną starlink od Muska : https://youtu.be/FAOXbpnBqNs?t=2933 
