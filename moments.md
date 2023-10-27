@@ -49,6 +49,7 @@ Polska afery :
   - PiS sprowadza do Polski emigrantów, legalizując ich pobyt : https://youtu.be/9zGiN7YXSHI?t=144
   - Ministerstwo sprawiedliwości ujawnia PESELe, adresy : https://youtu.be/By7dtZU6_6o?t=767
   - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
+  - 28 mln z PARP korupcyjnie danych firmie rodziny Obajtka, kara to tylko dymisja : https://youtu.be/N0r0QB5Ysv0?t=1286 
 
 
 Polska wydarzenia :
