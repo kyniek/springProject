@@ -1,13 +1,13 @@
 https://youtu.be/0vs2xMOw6YM?t=2633
 
 
-Nauka :
+### Nauka :
 - Szczelinowanie gazu wywołuje trzęsienia ziemi, dowody : https://wolnemedia.net/szczelinowanie-hydrauliczne-wywoluje-trzesienia-ziemi-2/
 - Ludzie głupieją od fluoru : https://www.sciencedirect.com/science/article/pii/S0892036223001435?via%3Dihub
 
 
 
-Świat wydarzenia :
+### Świat wydarzenia :
 - Katastrofa badyspapu, zginął pakistański miliarder od amoniaku i rurociągów : https://youtu.be/sGbmHNRkQDk?t=1859
 - Binden kocha dzieci : https://youtu.be/asc-juCiF-g?t=4050
 - Zmiana rządu w Nigerze, ECOWAS i skorumpowany szef Tinubu chcą zbrojnej interwencji : https://wolnemedia.net/pracz-heroinowy-z-chicago-chce-dokonac-inwazji-na-niger/
@@ -19,7 +19,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 
 
-Polska gospodarka :
+### Polska gospodarka :
   - Polonezy exportowane do Chin : https://youtu.be/yO3V1qE2E6I?t=2341
   - bieda, piekarnia w PRzemyślu sprzedaje chleb na kromki : https://youtu.be/OtyiOCZLOBo?t=2202 
   - polski instytut w Kijowie robi propagandę, flaga polski przypinana : https://youtu.be/4Rf4o89Ni9o?t=840 
@@ -28,13 +28,13 @@ Polska gospodarka :
   - Brakuje nauczycieli : https://wolnemedia.net/edukacja-na-bardzo-ostrym-zakrecie/
 
 
-Opresja :
+### Opresja :
   - minimum 1000zł kary za zbieranie grzybów i sprzedarz : https://youtu.be/FAOXbpnBqNs?t=826 
   - Anarcho-tyrania, inżynieria społeczna totalnej kontroli : https://wolnemedia.net/do-systemu-panstw-europy-ladowana-jest-anarcho-tyrania/
   - pobłażliwość dla ukraińskich przestępców, surowe kary dla Polaków, syn posłanki Arent katował dziewczynę i nagrywał : https://youtu.be/3JuLmAJa460?t=4824
 
   
-Polska afery :
+### Polska afery :
   - majątek Morawieckiego, conajmniej 100 mln zł : https://youtu.be/89p6ULEBb2U?t=1081
   - mąż pani Witek z PIS 2 lata na OIOM, za 30 000zł miesiąc : https://youtu.be/ETZ9eoEfB8c?t=4459
   - fala zgonów kadry (17 + 34 + 39 + 20), uniwersytet Mickiewidza : https://youtu.be/HfcX5DAnNQU?t=59 
@@ -53,18 +53,18 @@ Polska afery :
   - 28 mln z PARP korupcyjnie danych firmie rodziny Obajtka, kara to tylko dymisja : https://youtu.be/N0r0QB5Ysv0?t=1286 
 
 
-Polska wydarzenia :
+### Polska wydarzenia :
   - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574
   - Duda powitany w USA przez rodaków na paradzie Puławskiego : https://youtu.be/rO3SRYORMO4?t=1796
   - Mentzen - na wszystko może nie starczyć ale na wojsko kasa musi być : https://youtu.be/majWZ2ZoVs4?t=744 
 
 
-Antypolonizm :
+### Antypolonizm :
   - Netflix USA, Polak jako wredny nadzorca i przestępca, szkalowana klasa średnia : https://youtu.be/OebNm2aw2_4?t=4282 
 
 
 
-Historia :
+### Historia :
 - Jak polski rząd uciekł, agresja III Rzeszy, Słowacji i Ukraińców na rozkaz Canarissa, ZSRR : https://youtu.be/ETZ9eoEfB8c?t=544 
 - operacja miłosierny anioł, masakra NATO w Jugosławi : https://wolnemedia.net/milosierny-aniol-amerykanskie-ludobojstwo-pod-djakovica/
 - CIA za pomocą LSD spowodowało masowe szaleństwo w Pont-Saint-Esprit : https://wolnemedia.net/tajemnica-pont-saint-esprit/
@@ -76,12 +76,12 @@ Historia :
 
 
 
-Militaryzacja :
+### Militaryzacja :
 - Kwalifikacja wojskowa dla wszystkich, ćwiczenia wojskowe leśników : https://youtu.be/JkjBYFJ6Juo?t=435 
 
 
 
-Covid :
+### Covid :
 - Większość zmarła na respiratorowe zapalenie płuc, a nie COVID-19 : https://wolnemedia.net/wiekszosc-zmarla-na-respiratorowe-zapalenie-pluc-a-nie-covid-19/
 - Pozwy w Polsce za skutki uboczne preparatów na covid, historia kierowcy : https://wolnemedia.net/pozwy-za-skutki-uboczne-po-szczepieniach-na-covid-19/ 
 - Procesy w Niemczech o zniszczone zdrowie po preparatach genetycznych : https://wolnemedia.net/pierwsze-procesy-sadowe-z-powodu-skutkow-szczepien-na-covid-19/ 
@@ -97,7 +97,7 @@ Covid :
   - dr Rish z Yale University wiąże nagły wzrost zachorowań na nowotwory z preparatem na covid : https://wolnemedia.net/po-szczepieniach-na-covid-19-wzrosla-liczba-chorych-na-raka/#comment-296611 
 
 
-Nazizm : 
+### Nazizm : 
   - General Plan Ost, wymordowanie i przesiedlenie 85% Polaków : https://www.prokapitalizm.pl/czyszczenie-przedpola-plan-doktora-hansa-ehlicha-wciaz-aktualny/
   -  Izrael :
     - Zbombardowali 3 szpitale : https://wolnemedia.net/izraelskie-ataki-na-palestynskie-cele-cywilne/
@@ -113,12 +113,12 @@ Nazizm :
 
 
 
-Białoruś :
+### Białoruś :
   - Na Białorusi uczczono pamięć ofiar rzezi wołyńskiej : https://wolnemedia.net/na-bialorusi-uczczono-pamiec-ofiar-rzezi-wolynskiej/ 
 
 
 
-Ukraina :
+### Ukraina :
 - USA a konflikt na UA :
   - McGregor, były doradca prezydenta, Krym rosyjski, prześladowanie ludności Dombasu i Ługańska : https://wolnemedia.net/wektory-wojenno-polityczne/ 
   - pułkownik USA rozmawia z dziennikarzem - 400 000 ukaińskich ofiar, 50 000 inwalidów (2023-08) : https://youtu.be/4Ecf_pOv9Rs?t=370
@@ -151,21 +151,21 @@ Ukraina :
 
 
 
-USA : 
+### USA : 
   - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
   - Kongresmenka amerykańska - należy prześledzić numery seryjne amerykańskiej broni używanej przez Hamas, czy to pomoc dla Ukrainy : https://youtu.be/vYgII-eSBaw?t=1442
 
 
-Izrael : 
+### Izrael : 
 - Netanyahu nakazał wojsku wycofanie i nie reagowanie przez 7 godzin - Jewish Pro-Life Foundation : https://wolnemedia.net/netanjahu-nakazal-wojsku-wycofac-sie-podczas-ataku-hamasu/
 
 
 
-Inne :
+### Inne :
   - 3d printed car : https://www.youtube.com/watch?v=-pxNIrBaDrA
 
 
-## Kalendarz :  
+### Kalendarz :  
 **1985** – Jaruzelski–Rockefeller, przekazanie Polski z jednych rąk żydowskich do drugich, tj. spod opieki sowieckiej pod opiekę amerykańską  
 **1993** – konsekwentne zakończenie wycofywania wojsk sowieckich z Polski, chwila oddechu przed utratą gospodarki przez Polskę  
 **1999** – NATO  
