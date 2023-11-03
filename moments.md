@@ -184,4 +184,4 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 **2021** – zasieki wzdłuż granicy z Białorusią; Duda – stan wyjątkowy na części obszaru Polski  
 **2022** – Duda – ulokowanie w Polsce do 7550 żołnierzy obcych armii, w tym do 6500 amerykańskich i personelu cywilnego wraz z etatowym uzbrojeniem, wyposażeniem i środkami bojowymi oraz z prawem użycia broni wobec Polaków (te liczby dawno zdezaktualizowały się)  
 **2022** – początek największej w historii akcji przesiedleńczej Ukraińców do Polski  
-**2020–2022 **– ponad 200 tys. nadmiarowych zgonów; pozostali przy życiu Polacy nie uznają tego za temat warty uwagi  
+**2020–2022** – ponad 200 tys. nadmiarowych zgonów; pozostali przy życiu Polacy nie uznają tego za temat warty uwagi  
