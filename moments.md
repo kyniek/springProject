@@ -165,9 +165,9 @@ Inne :
   - 3d printed car : https://www.youtube.com/watch?v=-pxNIrBaDrA
 
 
-Kalendarz :
-1985 – Jaruzelski–Rockefeller, przekazanie Polski z jednych rąk żydowskich do drugich, tj. spod opieki sowieckiej pod opiekę amerykańską
-1993 – konsekwentne zakończenie wycofywania wojsk sowieckich z Polski, chwila oddechu przed utratą gospodarki przez Polskę
+Kalendarz :  
+1985 – Jaruzelski–Rockefeller, przekazanie Polski z jednych rąk żydowskich do drugich, tj. spod opieki sowieckiej pod opiekę amerykańską  
+1993 – konsekwentne zakończenie wycofywania wojsk sowieckich z Polski, chwila oddechu przed utratą gospodarki przez Polskę  
 1999 – NATO
 2004 – UE
 2005 – Chabad Lubawicz, Polin
