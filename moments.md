@@ -119,6 +119,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 
 ### Ukraina :
+- Ukraina, cała prawda - wywiad z dziennikarzem śledczym Leszkiem Szymborskim : https://www.youtube.com/watch?v=42RiQLwQwzI
 - USA a konflikt na UA :
   - McGregor, były doradca prezydenta, Krym rosyjski, prześladowanie ludności Dombasu i Ługańska : https://wolnemedia.net/wektory-wojenno-polityczne/ 
   - pułkownik USA rozmawia z dziennikarzem - 400 000 ukaińskich ofiar, 50 000 inwalidów (2023-08) : https://youtu.be/4Ecf_pOv9Rs?t=370
