@@ -75,6 +75,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 - Powstanie warszawskie - fałszerstwo PAP zeznania świadka : https://youtu.be/TBAefq5Hu-k?t=2350
 - Japonia, Shiro Ischi , dowódca bestialskiej jednoski 702, zamordowali 20 000 000 Chińczyków : https://youtu.be/txI26x7w5Mg?t=3349
 - Przygotowania do I Wojny Światowej Wielkiej Brytanii, planowane : https://wolnemedia.net/sekretne-poczatki-pierwszej-wojny-swiatowej/
+- USA zaatakowały wietnam na podstawie fałszywej prowokacji mordując 3 miliony ludzi : https://wolnemedia.net/wojna-w-wietnamie-zamach-na-jfk-incydent-tonkinski-i-dziedzictwo-konfliktu/
 
 
 
