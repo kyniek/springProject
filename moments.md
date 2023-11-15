@@ -11,7 +11,7 @@ https://youtu.be/0vs2xMOw6YM?t=2633
 - Katastrofa badyspapu, zginął pakistański miliarder od amoniaku i rurociągów : https://youtu.be/sGbmHNRkQDk?t=1859
 - Binden kocha dzieci : https://youtu.be/asc-juCiF-g?t=4050
 - Zmiana rządu w Nigerze, ECOWAS i skorumpowany szef Tinubu chcą zbrojnej interwencji : https://wolnemedia.net/pracz-heroinowy-z-chicago-chce-dokonac-inwazji-na-niger/
-- Rzekome wysadzenie przez Rosjan fińskiego gazociągu okazało się kłamstwem, fiński statek Polar Bear zerwał rurę kotwicą : https://youtu.be/lOLD1-CVDVg?t=112
+- Rzekome wysadzenie przez Rosjan gazociągu Baltic Connector okazało się kłamstwem, fiński statek Polar Bear zerwał rurę kotwicą : https://youtu.be/lOLD1-CVDVg?t=112
 - Pracownik amerykańskiej korporacji zabija ludzi protestujących przeciw odebraniu domów pod kopalnie miedzi : https://youtu.be/lOLD1-CVDVg?t=3273 
 
 
