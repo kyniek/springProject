@@ -163,6 +163,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 ### Izrael : 
 - Netanyahu nakazał wojsku wycofanie i nie reagowanie przez 7 godzin - Jewish Pro-Life Foundation : https://wolnemedia.net/netanjahu-nakazal-wojsku-wycofac-sie-podczas-ataku-hamasu/
+- Wywiad z krytycznym wobec Izraela żydem : https://wolnemedia.net/jak-umierala-nadzieja-w-izraelu/ 
 
 
 
