@@ -161,7 +161,8 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
   - Kongresmenka amerykańska - należy prześledzić numery seryjne amerykańskiej broni używanej przez Hamas, czy to pomoc dla Ukrainy : https://youtu.be/vYgII-eSBaw?t=1442
   - Wielkie sprzątanie przed wizytą Xi-Jinpinga w USA, ale EU mówi się że ma nielubić Chin : https://youtu.be/kKYOYmckfmE?t=3208
-  - Rosyjska ropa płynie do Pentagonu przez Turcię i Grecję : https://youtu.be/1PYoPDTkaU4?t=2006 
+  - Rosyjska ropa płynie do Pentagonu przez Turcię i Grecję : https://youtu.be/1PYoPDTkaU4?t=2006
+  - Najwybitniejszy amerykański politolog Mearsheimer : Ukraina musi stać się neutralna i pogodzić się z utratą części terytorium : https://wolnemedia.net/prof-mearsheimer-wzywa-kijow-do-miedzynarodowej-neutralnosci/
 
 
 ### Izrael : 
