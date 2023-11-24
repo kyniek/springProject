@@ -4,6 +4,7 @@ https://youtu.be/0vs2xMOw6YM?t=2633
 ### Nauka :
 - Szczelinowanie gazu wywołuje trzęsienia ziemi, dowody : https://wolnemedia.net/szczelinowanie-hydrauliczne-wywoluje-trzesienia-ziemi-2/
 - Ludzie głupieją od fluoru : https://www.sciencedirect.com/science/article/pii/S0892036223001435?via%3Dihub
+- AI zarządzająca korporacją : https://wolnemedia.net/mika-pierwszy-humanoidalny-dyrektor-generalny-z-ai/
 
 
 
