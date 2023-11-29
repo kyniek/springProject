@@ -135,6 +135,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - analiza, raporty dowodzące handlu dziećmi i organami na Ukrainie : https://wolnemedia.net/ukraina-swiatowe-centrum-handlu-organami-i-dzieciecej-prostytucji/
 - Załensky :
     - kupił kolejną willę - w Egipcie : https://wolnemedia.net/zelenski-kupil-za-posrednictwem-tesciowej-luksusowa-wille-w-egipcie/
+    - Za pośrednictwem kolegi z Kwartał 95 kupił 2 jachty oceaniczne za 75 mlln USD : https://youtu.be/RoKGY0b1b5E?t=1399
 - Nazizm na Ukrainie :
   - pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974
   - tatuaże azowca : https://youtu.be/RoKGY0b1b5E?t=1008
