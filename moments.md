@@ -157,7 +157,8 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - https://youtu.be/qUUN1yLHvHY?t=1720
-  - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329 
+  - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329
+  - szczere pole, tysiące nowych grobów ukraińskich żołnierzy, dziury w ziemi : https://youtu.be/KSDqYv6BjDA?t=1993
 
 
 
