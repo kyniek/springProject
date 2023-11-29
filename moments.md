@@ -135,7 +135,9 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - analiza, raporty dowodzące handlu dziećmi i organami na Ukrainie : https://wolnemedia.net/ukraina-swiatowe-centrum-handlu-organami-i-dzieciecej-prostytucji/
 - Załensky :
     - kupił kolejną willę - w Egipcie : https://wolnemedia.net/zelenski-kupil-za-posrednictwem-tesciowej-luksusowa-wille-w-egipcie/
-- pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974 
+- Nazizm na Ukrainie :
+  - pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974
+  - tatuaże azowca : https://youtu.be/RoKGY0b1b5E?t=1008
 - front : https://youtu.be/yO3V1qE2E6I?t=3853 
 - sytuacje :
   - pani z mercedesa w Kijowie zatrzymana grozi policjantom że jej mąż ich do Bahmuta wyśle : https://youtu.be/OtyiOCZLOBo?t=1861
