@@ -162,6 +162,10 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - szczere pole, tysiące nowych grobów ukraińskich żołnierzy, dziury w ziemi : https://youtu.be/KSDqYv6BjDA?t=1993
 
 
+### Kanada
+  - Eutanazja dla niemowląt, 4% wszystkich zgonów to eutanazja : https://wolnemedia.net/36-eutanazji-dziennie/
+
+
 
 ### USA : 
   - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
