@@ -163,7 +163,8 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 
 ### Kanada
-  - Eutanazja dla niemowląt, 4% wszystkich zgonów to eutanazja : https://wolnemedia.net/36-eutanazji-dziennie/
+  - 4% wszystkich zgonów to eutanazja : https://wolnemedia.net/36-eutanazji-dziennie/
+  - Eutanazja dla niemowląt : https://wolnemedia.net/legalizacja-eutanazji-dla-niemowlat-w-kanadzie/
 
 
 
