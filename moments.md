@@ -124,6 +124,29 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 
 
+### Kanada
+  - 4% wszystkich zgonów to eutanazja : https://wolnemedia.net/36-eutanazji-dziennie/
+  - Eutanazja dla niemowląt : https://wolnemedia.net/legalizacja-eutanazji-dla-niemowlat-w-kanadzie/
+
+
+
+### Izrael : 
+- Netanyahu nakazał wojsku wycofanie i nie reagowanie przez 7 godzin - Jewish Pro-Life Foundation : https://wolnemedia.net/netanjahu-nakazal-wojsku-wycofac-sie-podczas-ataku-hamasu/
+- Zbrodnie Izraela, IDF zabiło uciekającą rodzinę, Humans Right Watch : https://youtu.be/1PYoPDTkaU4?t=3086
+- Wywiad z krytycznym wobec Izraela żydem : https://wolnemedia.net/jak-umierala-nadzieja-w-izraelu/ 
+
+
+
+### USA : 
+  - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
+  - Kongresmenka amerykańska - należy prześledzić numery seryjne amerykańskiej broni używanej przez Hamas, czy to pomoc dla Ukrainy : https://youtu.be/vYgII-eSBaw?t=1442
+  - Wielkie sprzątanie przed wizytą Xi-Jinpinga w USA, ale EU mówi się że ma nielubić Chin : https://youtu.be/kKYOYmckfmE?t=3208
+  - Rosyjska ropa płynie do Pentagonu przez Turcię i Grecję : https://youtu.be/1PYoPDTkaU4?t=2006
+  - Najwybitniejszy amerykański politolog Mearsheimer : Ukraina musi stać się neutralna i pogodzić się z utratą części terytorium : https://wolnemedia.net/prof-mearsheimer-wzywa-kijow-do-miedzynarodowej-neutralnosci/
+  - AI firmy ubezpieczeniowej limituje leczenie powodując zgony : https://wolnemedia.net/najwiekszy-ubezpieczyciel-w-usa-pozwany-za-stosowanie-ai/
+
+
+
 ### Ukraina :
 - Ukraina, cała prawda - wywiad z dziennikarzem śledczym Leszkiem Szymborskim : https://www.youtube.com/watch?v=42RiQLwQwzI
 - USA a konflikt na UA :
@@ -160,27 +183,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - https://youtu.be/qUUN1yLHvHY?t=1720
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329
   - szczere pole, tysiące nowych grobów ukraińskich żołnierzy, dziury w ziemi : https://youtu.be/KSDqYv6BjDA?t=1993
-
-
-### Kanada
-  - 4% wszystkich zgonów to eutanazja : https://wolnemedia.net/36-eutanazji-dziennie/
-  - Eutanazja dla niemowląt : https://wolnemedia.net/legalizacja-eutanazji-dla-niemowlat-w-kanadzie/
-
-
-
-### USA : 
-  - Pentagon przyznaje że nuklearny wojskowy program Iranu nie istnieje : https://wolnemedia.net/wojskowy-program-nuklearny-iranu-nie-istnieje/
-  - Kongresmenka amerykańska - należy prześledzić numery seryjne amerykańskiej broni używanej przez Hamas, czy to pomoc dla Ukrainy : https://youtu.be/vYgII-eSBaw?t=1442
-  - Wielkie sprzątanie przed wizytą Xi-Jinpinga w USA, ale EU mówi się że ma nielubić Chin : https://youtu.be/kKYOYmckfmE?t=3208
-  - Rosyjska ropa płynie do Pentagonu przez Turcię i Grecję : https://youtu.be/1PYoPDTkaU4?t=2006
-  - Najwybitniejszy amerykański politolog Mearsheimer : Ukraina musi stać się neutralna i pogodzić się z utratą części terytorium : https://wolnemedia.net/prof-mearsheimer-wzywa-kijow-do-miedzynarodowej-neutralnosci/
-
-
-### Izrael : 
-- Netanyahu nakazał wojsku wycofanie i nie reagowanie przez 7 godzin - Jewish Pro-Life Foundation : https://wolnemedia.net/netanjahu-nakazal-wojsku-wycofac-sie-podczas-ataku-hamasu/
-- Zbrodnie Izraela, IDF zabiło uciekającą rodzinę, Humans Right Watch : https://youtu.be/1PYoPDTkaU4?t=3086
-- Wywiad z krytycznym wobec Izraela żydem : https://wolnemedia.net/jak-umierala-nadzieja-w-izraelu/ 
-
+ 
 
 
 ### Inne :
