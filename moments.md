@@ -55,6 +55,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - Kluczowa rola CPK w odbudowie Ukrainy : https://youtu.be/7y0QUgQfm9U?t=934
   - 28 mln z PARP korupcyjnie danych firmie rodziny Obajtka, kara to tylko dymisja : https://youtu.be/N0r0QB5Ysv0?t=1286
   - Policja przejęła arsenał nowoczesnej broni : https://youtu.be/1PYoPDTkaU4?t=654
+  - Polski żyd, idol brauna to aktor Bartosz Sadowski : https://youtu.be/hKkWrOwV0PQ?t=938
 
 
 ### Polska wydarzenia :
