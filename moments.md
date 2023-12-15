@@ -147,6 +147,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - Rosyjska ropa płynie do Pentagonu przez Turcię i Grecję : https://youtu.be/1PYoPDTkaU4?t=2006
   - Najwybitniejszy amerykański politolog Mearsheimer : Ukraina musi stać się neutralna i pogodzić się z utratą części terytorium : https://wolnemedia.net/prof-mearsheimer-wzywa-kijow-do-miedzynarodowej-neutralnosci/
   - AI firmy ubezpieczeniowej limituje leczenie powodując zgony : https://wolnemedia.net/najwiekszy-ubezpieczyciel-w-usa-pozwany-za-stosowanie-ai/
+  - Chiński lek przeciw nowotworowy zatwierdzony przez FDC, ale dla amerykanów 30 razy droższy niż w Chinach : https://youtu.be/hKkWrOwV0PQ?t=3999
 
 
 
