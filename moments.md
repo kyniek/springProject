@@ -159,17 +159,18 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 - handel organami :
   - Na zakarpaciu zatrzymano ukraińca sprzedającego niemowlaki na organy : https://wolnemedia.net/ukrainski-handlarz-dziecmi-sprzedawal-niemowlaki-na-organy/
   - analiza, raporty dowodzące handlu dziećmi i organami na Ukrainie : https://wolnemedia.net/ukraina-swiatowe-centrum-handlu-organami-i-dzieciecej-prostytucji/
-- Załensky :
+- Załensky i koledzy:
     - kupił kolejną willę - w Egipcie : https://wolnemedia.net/zelenski-kupil-za-posrednictwem-tesciowej-luksusowa-wille-w-egipcie/
     - Za pośrednictwem kolegi z Kwartał 95 kupił 2 jachty oceaniczne za 75 mlln USD : https://youtu.be/RoKGY0b1b5E?t=1399
+    - Wille urzędników, bogacą się na wojnie : https://youtu.be/N0r0QB5Ysv0?t=3919
 - Nazizm na Ukrainie :
   - pisanki wielkanocne z ukraińskimi symbolami narodowymi : https://youtu.be/sEzc4hd4BuQ?t=2974
   - tatuaże azowca : https://youtu.be/RoKGY0b1b5E?t=1008
 - front : https://youtu.be/yO3V1qE2E6I?t=3853 
 - sytuacje :
   - pani z mercedesa w Kijowie zatrzymana grozi policjantom że jej mąż ich do Bahmuta wyśle : https://youtu.be/OtyiOCZLOBo?t=1861
-  - Wille urzędników, bogacą się na wojnie : https://youtu.be/N0r0QB5Ysv0?t=3919
   - Znalezienie lokalizatora GPS w jednej z limuzyn Dudy po wizycie na UA : https://youtu.be/N0r0QB5Ysv0?t=2802
+- Zachodnia pomoc dla Ukrainy, robaki w fasoli : https://youtu.be/hKkWrOwV0PQ?t=3289
 - Zeznania cywila ukraińskiego jak to ich armia zamknęła w zaminowanej piwnicy : https://youtu.be/ETZ9eoEfB8c?t=2859
 - Legion cudoziemski, polski, w okopach mądrość wraca : https://youtu.be/HfcX5DAnNQU?t=1241
 - dron ukraiński sterowany anteną starlink od Muska : https://youtu.be/FAOXbpnBqNs?t=2933 
