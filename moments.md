@@ -61,7 +61,8 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 ### Polska wydarzenia :
   - KO i marsz miliona serc : https://youtu.be/rO3SRYORMO4?t=1574
   - Duda powitany w USA przez rodaków na paradzie Puławskiego : https://youtu.be/rO3SRYORMO4?t=1796
-  - Mentzen - na wszystko może nie starczyć ale na wojsko kasa musi być : https://youtu.be/majWZ2ZoVs4?t=744 
+  - Mentzen - na wszystko może nie starczyć ale na wojsko kasa musi być : https://youtu.be/majWZ2ZoVs4?t=744
+  - Ekspose Tuska, co nas czeka : https://youtu.be/hKkWrOwV0PQ?t=1896
 
 
 ### Antypolonizm :
