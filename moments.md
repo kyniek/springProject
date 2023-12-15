@@ -183,6 +183,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - https://youtu.be/N0r0QB5Ysv0?t=3631
   - łapanka z psami : https://youtu.be/gSHxo2-k3Gc?t=2547
   - https://youtu.be/KSDqYv6BjDA?t=2095
+- Powiastka dla popa ukraińskiego, oficer grozi uduszeniem : https://youtu.be/hKkWrOwV0PQ?t=4354  
 - realia wojny, opowieści ukraińskich żołnierzy :
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - https://youtu.be/qUUN1yLHvHY?t=1720
