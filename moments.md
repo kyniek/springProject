@@ -94,7 +94,8 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 - Procesy w Niemczech o zniszczone zdrowie po preparatach genetycznych : https://wolnemedia.net/pierwsze-procesy-sadowe-z-powodu-skutkow-szczepien-na-covid-19/ 
 - liczba nagłych zgonów w Australii wzrosła o 5162% : https://wolnemedia.net/liczba-naglych-smierci-w-australii-wzrosla-o-5162/
 - Badanie naukowe, 3 do 5 krotnie więcej przypadków u zaszczepionych : https://wolnemedia.net/krwawienie-z-pochwy-u-niemiesiaczkujacych-kobiet-po-preparatach-mrna/
-- Rząd Izraela odnalazł umowy z Pfizerem, wcześniej twierdzili że nie mogą zlokalizować umów : https://wolnemedia.net/rzad-izraela-odnalazl-zagubione-umowy-z-pfizerem/ 
+- Rząd Izraela odnalazł umowy z Pfizerem, wcześniej twierdzili że nie mogą zlokalizować umów : https://wolnemedia.net/rzad-izraela-odnalazl-zagubione-umowy-z-pfizerem/
+- Nagłe zesłabnięcie piłkarza, szczeppiony na covid-19 : https://wolnemedia.net/pilkarz-trafil-z-boiska-do-szpitala-z-powodu-zatrzymania-serca/
   Nagłe zgony :
   - Nagły zgon doświadczonego biegacza : https://wolnemedia.net/nagly-zgon-doswiadczonego-biegacza/
   - Nagły zgon naukowca : https://wolnemedia.net/nagla-i-podejrzana-smierc-niewygodnego-naukowca/
