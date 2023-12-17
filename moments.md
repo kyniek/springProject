@@ -136,6 +136,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 ### Izrael : 
 - Netanyahu nakazał wojsku wycofanie i nie reagowanie przez 7 godzin - Jewish Pro-Life Foundation : https://wolnemedia.net/netanjahu-nakazal-wojsku-wycofac-sie-podczas-ataku-hamasu/
 - Zbrodnie Izraela, IDF zabiło uciekającą rodzinę, Humans Right Watch : https://youtu.be/1PYoPDTkaU4?t=3086
+- żołnierze IDF zamordowali kobiety i dzieci ukrywające się w szkole : https://wolnemedia.net/izraelscy-zolnierze-dokonali-egzekucji-kobiet-i-dzieci-w-szkole/
 - Wywiad z krytycznym wobec Izraela żydem : https://wolnemedia.net/jak-umierala-nadzieja-w-izraelu/ 
 
 
