@@ -84,7 +84,8 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 
 
 ### Militaryzacja :
-- Kwalifikacja wojskowa dla wszystkich, ćwiczenia wojskowe leśników : https://youtu.be/JkjBYFJ6Juo?t=435 
+- Kwalifikacja wojskowa dla wszystkich, ćwiczenia wojskowe leśników : https://youtu.be/JkjBYFJ6Juo?t=435
+- MON kupuje ariostacje za 1 MLD z USA mimo że takie same są produkowane w Polsce : https://youtu.be/hKkWrOwV0PQ?t=2532
 
 
 
