@@ -56,6 +56,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - 28 mln z PARP korupcyjnie danych firmie rodziny Obajtka, kara to tylko dymisja : https://youtu.be/N0r0QB5Ysv0?t=1286
   - Policja przejęła arsenał nowoczesnej broni : https://youtu.be/1PYoPDTkaU4?t=654
   - Polski żyd, idol brauna to aktor Bartosz Sadowski : https://youtu.be/hKkWrOwV0PQ?t=938
+  - Hot 16 challenge prorocza piosenka Brauna, zapowiada wojnę : https://youtu.be/WcB7nF62fgQ?t=180
 
 
 ### Polska wydarzenia :
