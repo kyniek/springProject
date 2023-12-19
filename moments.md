@@ -29,6 +29,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - polska emerytura dla Ukraińca za przepracowanie choćby 1 dnia w Polsce : https://youtu.be/ETZ9eoEfB8c?t=4124 
   - powstaje nowy port na wyspie w Gdyni, budują tylko zachodnie firmy : https://youtu.be/9zGiN7YXSHI?t=1297
   - Brakuje nauczycieli : https://wolnemedia.net/edukacja-na-bardzo-ostrym-zakrecie/
+  - Nowa dyrektywa UE, zakaz wymiany silnika, skrzyni biegów i reperaturek : https://youtu.be/WcB7nF62fgQ?t=1525
 
 
 ### Opresja :
