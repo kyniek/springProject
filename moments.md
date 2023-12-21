@@ -190,6 +190,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
   - https://youtu.be/KSDqYv6BjDA?t=2095
 - Powiastka dla popa ukraińskiego, oficer grozi uduszeniem : https://youtu.be/hKkWrOwV0PQ?t=4354  
 - realia wojny, opowieści ukraińskich żołnierzy :
+  - ukraiński żołnierz w TV - dowódca wygubił 350 ludzi w 8 godzin posyłając grupkami pod ostrzał : https://youtu.be/WcB7nF62fgQ?t=3068
   - ukraiński program TV, 90% męskiej populacji powinno iść na wojnę : https://youtu.be/gSHxo2-k3Gc?t=2519
   - https://youtu.be/qUUN1yLHvHY?t=1720
   - zasadzka na żołnierza : https://youtu.be/qUUN1yLHvHY?t=2329
