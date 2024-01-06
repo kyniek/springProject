@@ -100,6 +100,7 @@ https://youtu.be/yO3V1qE2E6I?t=3804
 - Rząd Izraela odnalazł umowy z Pfizerem, wcześniej twierdzili że nie mogą zlokalizować umów : https://wolnemedia.net/rzad-izraela-odnalazl-zagubione-umowy-z-pfizerem/
 - Nagłe zesłabnięcie piłkarza, szczeppiony na covid-19 : https://wolnemedia.net/pilkarz-trafil-z-boiska-do-szpitala-z-powodu-zatrzymania-serca/
   Nagłe zgony :
+  - Nagła śmierć młodego żołnierza USA, twarzy kampanii podawania preparatów na covid19 : https://wolnemedia.net/nagla-smierc-39-letniego-zolnierza-zaszczepionego-na-covid-19/
   - Nagły zgon doświadczonego biegacza : https://wolnemedia.net/nagly-zgon-doswiadczonego-biegacza/
   - Nagły zgon naukowca : https://wolnemedia.net/nagla-i-podejrzana-smierc-niewygodnego-naukowca/
   - Preparaty genetyczne na covid zwiększają ryzyko chorób serca 130 razy : https://wolnemedia.net/preparaty-na-covid-19-zwiekszaja-ryzyko-chorob-serca-o-13200/ 
