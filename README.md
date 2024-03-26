@@ -12,6 +12,11 @@ better reactive stream debug - place in method with Mono/Flux : Hooks.onOperator
 Classic approach to WS : one thread per request - default value is 200 , can be increased but minimal consumption for thread is 1MB 
 
 
+## Spring init bean order
+- nie ma gwarancji kolejności inicjalizacji beanów bez użycia specjalnych annotacji
+- annotacje kontrolujące inicjalizację beanów : @Primary, @Order and @Qualifier, @DependsOn
+
+
 ## Reactive Streams
 Main interfaces : Publisher, Subscriber, Subscription, Processor
 
